@@ -1,6 +1,7 @@
 <!DOCTYPE html>
 <html amp lang="id">
 <head>
+  <meta name="google-site-verification" content="g90fMzf7-ItJ7Isl3pvN5EM6FCaJGO1PywULF7A6vYA" />
   <meta charset="UTF-8">
   <meta name="description" content="Situs Judi Terpercaya Joker123 Punya Pola Gacor Paling Lengkap dan Terpercaya. Nikmati Keuntungan Taruhan Joker123 dan Ambil Bonus Member Baru Dengan Daftar Sekarang.">
   <meta name="keywords" content="joker123,joker 123,123 joker,situs joker123,daftar joker123,login joker123,game joker123">
